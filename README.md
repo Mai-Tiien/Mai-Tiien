@@ -24,5 +24,5 @@
 ### Feel free to contact with me:
 
 [![Gmail](https://img.shields.io/badge/-tmai2218@gmail.com-000?&logo=Gmail)](mailto:tmai2218@gmail.com)
-[![Telegram](https://img.shields.io/badge/-Telegram-000?&logo=Telegram)](https://web.telegram.org/k/#@MaiMax)
+[![Telegram](https://img.shields.io/badge/-Telegram-000?&logo=Telegram)](https://t.me/MaiMax)
 [![Linkedin](https://img.shields.io/badge/-Linkedin-000?&logo=Linkedin)](https://www.linkedin.com/in/tiien-noanh-mai-6611241a8/)
