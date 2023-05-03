@@ -1,4 +1,4 @@
-[![1365710-pixel-buildings-artist-artwork-digital-art-hd.png](https://i.postimg.cc/dVx7SB8j/1365710-pixel-buildings-artist-artwork-digital-art-hd.png)](https://postimg.cc/Bj2Qj27j)
+![Image](https://i.postimg.cc/dVx7SB8j/1365710-pixel-buildings-artist-artwork-digital-art-hd.png)
 
 # Hi, my name is Tiien 👋
 
